@@ -1,0 +1,2 @@
+# pengumuman-kelulusan
+PENGUMUMAN KELAS 6 SD NEGERI 6 SUDIMOROHARJO 
